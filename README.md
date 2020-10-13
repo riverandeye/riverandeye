@@ -2,4 +2,4 @@ Love to code and learn how to make the world better place<br/>Interested in Back
 
 
 
-Whoami : [riverandeye](https://riverandeye.com)<br/>blog  : [tistory](https://riverandeye.tistory.com)<br/>contact : riverandeye@gmail.com<br/>plan : [plan](https://plan.riverandeye.com/)
+Whoami : [riverandeye](https://riverandeye.com)<br/>blog  : [tistory](https://riverandeye.tistory.com)<br/>contact : riverandeye@gmail.com<br/>
